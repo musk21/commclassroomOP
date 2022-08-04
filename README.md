@@ -1,2 +1,2 @@
-hi there is a fun video .i love github now
-how about you?
+This video is very helpful.
+Amazing content
